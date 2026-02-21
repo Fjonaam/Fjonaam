@@ -12,5 +12,4 @@ Fun Facts:
 - Football player ⚽
 - Loves gaming 🎮
 - Energy drink lover ☕
-- Anime enjoyer ✨
 - Always curious about how things work
