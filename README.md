@@ -6,10 +6,3 @@ I'm especially interested in cybersecurity, hacking, and how systems and website
 If something can be tested, I want to explore it and understand how it can be more secure.
 
 I enjoy working on security labs, small projects, and improving my skills step by step.
-
-Fun Facts:
-- Cybersecurity enthusiast 🛡️
-- Football player ⚽
-- Loves gaming 🎮
-- Energy drink lover ☕
-- Always curious about how things work
